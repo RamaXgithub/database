@@ -1,1 +1,0 @@
-pepek kalian anjing
